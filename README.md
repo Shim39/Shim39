@@ -1,7 +1,5 @@
 - 👋 Hi, I’m @Shivam Bhosale
-- 👀 I’m interested in ...Cancer Research 
-- 🌱 I’m currently learning ...MSc. Bioinformatics
-- 💞️ I’m looking to collaborate on ...Linkedin - www.linkedin.com/in/shivam-bhosale-27aa0227b , Instagram - bhosale_39
+- Linkedin - www.linkedin.com/in/shivam-bhosale-27aa0227b
 - 📫 How to reach me ...contact - 8999640648 e-mail - shivambhosale1302@gmail.com
 - ⚡ Fun fact: ...Comfertably numb....!
 
